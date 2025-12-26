@@ -1,4 +1,6 @@
 <p align="left"> <img src=https://komarev.com/ghpvc/?username=wavetoivy&color=203341&style=flat-square&label=୨୧>
+  <p align="left"> 
+˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
 <p align="left"> 
   inactive
  
